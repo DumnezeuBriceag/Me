@@ -1,5 +1,5 @@
 # Me
-Everything about me, I'm a public person lmao
+Everything about me, I'm a public person 
 # Discord
 Dumnezeu#8888
 # Location
